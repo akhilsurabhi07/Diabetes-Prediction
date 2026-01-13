@@ -133,3 +133,7 @@ Vignan Institute of Technology and Science
 GitHub: https://github.com/akhilsurabhi07
 
 LinkedIn: https://www.linkedin.com/in/akhil-surabhi-641745255
+
+Mail:  akhilsurabhi07@gmail.com
+
+PhoneNumber: 7981325207
